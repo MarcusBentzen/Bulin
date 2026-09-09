@@ -2,149 +2,147 @@
 
 Denne siden viser hva som allerede finnes på hytta. **Sjekk listen før du handler**, slik at vi unngår unødvendige dobbeltkjøp.
 
-**Sist oppdatert:** 9. september 2026
+**Sist oppdatert:** 9. september 2026  
+**Siste besøkende:** Marcus
 
 ---
 
 ## Matvarer
 
-### Sukker, honning og søtt
+### Søtt
 
-- Akasiehonning
-- Vanlig honning × 2
+- Akasiehonning × 1 tube
+- Vanlig honning × 2 glass
 - Hvitt sukker × 3 pakker
 - Rørsukker × 1 pakke
 - Brunt rørsukker × 2 pakker
-- Sukkerkuler
-- Peanøttsmør:
-  - 1 full boks
-  - 1 nesten tom boks
-- Sjokolade: 5 × 100 g
-- Rosiner
-- Kakao
-- Mandler: 1 uåpnet pose
+- Peanøttsmør × 2 bokser
+  - 1 full
+  - 1 nesten tom
+- Sjokolade × 4 pakker à 100 g
+- Rosiner × 1 pakke
+- Kakao × 1 åpnet pakke
+- Mandler × 1 uåpnet pose
 
 ### Mel og baking
 
-- Siktet hvetemel:
-  - 1 uåpnet pakke
-  - 1 åpnet pakke igjen
-- Maizena
-- Bakepulver
+- Siktet hvetemel × 2 pakker
+  - 1 uåpnet
+  - 1 åpnet
+- Maizena × 1 pakke
+- Bakepulver × 1 åpnet boks
 
 ### Ris og pasta
 
-- Basmatiris: liten rest, omtrent nok til én middag
-  - **Kjøp mer dersom ris skal brukes til mer enn én middag**
-- Fullkornspasta: ca. 1/2 åpnet pakke
-- Linguine: ca. 2/3 åpnet pakke
+- Basmatiris × 1 liten rest
+  - Omtrent nok til én middag
+  - Kjøp mer dersom ris skal brukes til mer enn én middag
+- Fullkornspasta × 1 åpnet pakke, ca. 1/2 full
+- Linguine × 1 åpnet pakke, ca. 2/3 full
 
 ### Hermetikk og buljong
 
-- Makrell i tomat × 2
-- Hermetisert mais × 3
-- Klar kyllingbuljong × 1 pakke
+- Makrell i tomat × 2 bokser
+- Hermetisert mais × 3 bokser
+- Klar kyllingbuljong × 1 pakke, ca. 3+ porsjoner
 - Kyllingbuljong × 1 stor pakke
 
 ---
 
 ## Krydder og smakstilsetninger
 
-- Maldon-salt
-- Pepper
-- Grillkrydder
-- Paprika
-- Curry
-- Kanel
-- Oregano
-- Rosmarin
-- Timian × 2
-- Einerbær
-- Eddik
+- Maldon-salt × 1 pakke
+- Pepper × 1 glass
+- Grillkrydder × 1 glass
+- Paprika × 1 glass
+- Curry × 1 glass
+- Kanel × 1 glass
+- Oregano × 1 glass
+- Rosmarin × 1 glass
+- Timian × 2 glass
+- Einerbær × 1 glass
+- Eddik × 2 flasker
 - Tacokrydder × 2 pakker
 
 ---
 
 ## Kaffe og te
 
-- Kaffe × 2 uåpnede pakker
-- Twinings Forward Fruits × 1 pakke
-- Kaffefilter: **rikelig beholdning**
+- Kaffe × 2 uåpnede pakker, malt for presskanne
+- Twinings Forward Fruits × 1 halvfull pakke
+- Kaffefilter × mange
 
 ---
 
 ## Drikke
 
-### Mineralvann
+### Brus
 
-- Solo:
-  - ca. 1/2 fridge pack
-  - 2 flasker
-  - 1 stor flaske
+- Solo × 1/2 fridge pack
+- Solo × 2 flasker
+- Solo × 1 stor flaske
 
 ### Øl og vin
 
-- Øl: minst 4 fulle fridge packs
-- Alkoholfritt øl
-- Vin
+- Øl × minst 4 fridge packs
+- Alkoholfritt øl × et par bokser
+- Vindunker × ukjent antall
+  - Muligens gamle – bør sjekkes
 
 ### Brennevin og aperitiff
 
-- The Nikka Single Grain Japanese Whisky: nesten full
-- Havana Club 7 Años: ca. 1/5 full
-- Harahorn: 1 full flaske
-- Gammel Opland akevitt: ca. 1/7 full
-- Dalwhinnie 15 Year Old Highland Single Malt Scotch Whisky: 1 full flaske
-- Glenfiddich: nesten tom
-- Ballantine’s Finest Scotch Whisky: kun en liten rest
-- Martini Bianco: 1 full flaske
-- Aperol: ca. 1/2 full
-- Cointreau: ca. 1/2 full
+- Nikka Single Grain Japanese Whisky × 1 flaske, nesten full
+- Havana Club 7 Años × 1 flaske, ca. 1/5 full
+- Harahorn × 1 full flaske
+- Gammel Opland akevitt × 1 flaske, ca. 1/7 full
+- Dalwhinnie 15 Year Old Highland Single Malt Scotch Whisky × 1 full flaske
+- Glenfiddich × 1 flaske, nesten tom
+- Ballantine’s Finest Scotch Whisky × 1 flaske, kun en liten rest
+- Martini Bianco × 1 full flaske
+- Aperol × 1 flaske, ca. 1/2 full
+- Cointreau × 1 flaske, ca. 1/2 full
 
 ---
 
 ## Kjøkkenforbruk
 
-- Aluminiumsfolie: 1 rull
-- Plastfolie
-- Matpakkepapir
-- Ziploc-poser
-- Tørkerull: 8 ruller totalt
-  - 2 uåpnede pakker
-  - **Trenger ikke kjøpes**
+- Aluminiumsfolie × 1 rull
+- Plastfolie × 1 rull
+- Matpakkepapir × 1 rull
+- Ziploc-poser × 1 pakke
+- Tørkerull × 8 ruller totalt
 
 ---
 
 ## Toalett og papirvarer
 
-- Toalettpapir:
+- Toalettpapir × ca. 23 ruller totalt
   - 3 løse ruller
   - ca. 20 ruller i pakning
-  - **Rikelig beholdning**
-- Poser til forbrenningstoalett: **rikelig beholdning**
+- Poser til forbrenningstoalett × mange
 
 ---
 
 ## Gass
 
-- Fulle gassylindere: **3 stk.**
-- Tomme gassylindere i kjelleren: **2 stk.**
+- Fulle gassylindere × 3 stk.
+- Tomme gassylindere × 2 stk.
+  - Står i kjelleren
   - Må fylles
-- Totalt antall gassylindere: **5 stk.**
 
 ---
 
 ## Bør brukes opp først
 
-- Peanøttsmør: nesten tom boks
-- Fullkornspasta: ca. 1/2 pakke
-- Linguine: ca. 2/3 pakke
-- Åpnet siktet hvetemel
-- Basmatiris: liten rest
-- Havana Club 7 Años: ca. 1/5 full
-- Gammel Opland akevitt: ca. 1/7 full
-- Glenfiddich: nesten tom
-- Ballantine’s Finest Scotch Whisky: kun en liten rest
+- Peanøttsmør × 1 nesten tom boks
+- Fullkornspasta × 1 åpnet pakke, ca. 1/2 full
+- Linguine × 1 åpnet pakke, ca. 2/3 full
+- Siktet hvetemel × 1 åpnet pakke
+- Basmatiris × 1 liten rest
+- Havana Club 7 Años × 1 flaske, ca. 1/5 full
+- Gammel Opland akevitt × 1 flaske, ca. 1/7 full
+- Glenfiddich × 1 flaske, nesten tom
+- Ballantine’s Finest Scotch Whisky × 1 flaske, kun en liten rest
 
 ---
 
@@ -154,5 +152,4 @@ Denne siden viser hva som allerede finnes på hytta. **Sjekk listen før du hand
 2. Fjern varer som er brukt opp eller kastet.
 3. Legg til nye varer som blir stående igjen på hytta.
 4. Oppdater datoen øverst.
-
-Målet er å ha én enkel og oppdatert oversikt som alle kan sjekke før de handler.
+5. Sett inn navn på siste besøkende.
