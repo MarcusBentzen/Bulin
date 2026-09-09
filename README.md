@@ -4,6 +4,8 @@ Denne siden viser hva som allerede finnes på hytta. **Sjekk listen før du hand
 
 **Sist oppdatert:** 9. september 2026
 
+--
+
 ## Matvarer
 
 ### Sukker, honning og søtt
