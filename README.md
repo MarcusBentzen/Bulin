@@ -4,10 +4,6 @@ Denne siden viser hva som allerede finnes på hytta. **Sjekk listen før du hand
 
 **Sist oppdatert:** 9. september 2026
 
-> Mengdene er omtrentlige. Oppdater gjerne listen når noe brukes opp eller nytt blir stående igjen.
-
----
-
 ## Matvarer
 
 ### Sukker, honning og søtt
